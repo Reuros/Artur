@@ -1,1 +1,1 @@
-# Artur
+# wiesz jak jest
